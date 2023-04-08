@@ -1,0 +1,9 @@
+
+FERHAT SAMET KALKAN 
+///////////////////
+200218037
+/////////
+MOBILE PROGRAMMING 
+//////////////////
+ASSIGNMENT2
+///////////
